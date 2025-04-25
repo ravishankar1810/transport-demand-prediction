@@ -93,6 +93,6 @@ Additional engineered features and encodings were applied for better model learn
 **Ravi**  
 📧 Email: [ravishanka1819@gmail.com]  
 🐙 GitHub: [https://github.com/ravishankar1810]  
-🔗 LinkedIn: [https://www.google.com/url?q=https%3A%2F%2Fwww.linkedin.com%2Fin%2Fravi-shankar-singh-08361b290%2F%255D]  
+🔗 LinkedIn: [https://www.linkedin.com/in/ravi-shankar-singh-08361b290/%5D]  
 
 ---
